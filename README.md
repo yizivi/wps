@@ -1,14 +1,14 @@
-【教育考试专版】
-下载地址：http://ncre.neea.edu.cn/html1/report/1507/861-1.htm
+【富蕴县党建网】
+http://www.xjfydj.com/P/C/66148.htm
 
+
+_______________________________________________________________________________
 【温州大学】
 http://itc.wzu.edu.cn/info/1032/3661.htm
 
 【大庆市人民政府】
 http://www.daqing.gov.cn/xiangguanxiazai/14436.html
 
-【富蕴县党建网】
-http://www.xjfydj.com/P/C/66148.htm
 
 【晋城市党政机关】
 https://wps.jcgov.gov.cn/downloadOffice
